@@ -1,2 +1,2 @@
 # Website
-My life journey
+Welcome to my life journey
